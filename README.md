@@ -1,7 +1,7 @@
 # **Anime And Manga Rules**
+
+> <h2> General Rules </h2>
 >
->
-<h3> General Rules </h3>
 > - **_English Only_**
 > - **_Respect Everyone_**
 > - **_This Group Is For Anime Only_**

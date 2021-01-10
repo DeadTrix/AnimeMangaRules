@@ -6,9 +6,7 @@
 > - **_Respect Everyone_**
 > - **_This Group Is For Anime Only_**
 > - **_Please Mute The Group IF It Disturbs You_**
->
->
->
+<br>
 > #### Chat And Media Rules
 > - **_No Advertising, Broadcasting Or Chain Messages_**
 > - **_No Rude/Vulgar Behavior_**
